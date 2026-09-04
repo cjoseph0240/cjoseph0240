@@ -16,4 +16,4 @@ I'm currently completing the **Google Data Analytics Professional Certificate** 
 - HIPAA Fundamentals Certificate *(planned)*
 
 ## 🔗 Connect
-[LinkedIn](www.linkedin.com/christinajoseph1122) · cjoseph0240@gmail.com
+[LinkedIn](www.linkedin.com/cjoseph0240) · cjoseph0240@gmail.com
